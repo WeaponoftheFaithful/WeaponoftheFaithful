@@ -1,4 +1,4 @@
-**APHELIOS / CORVO / Ilya**
+**APHELIOS / CORVO / HOWL**
 
 - Whisp 2 int.
 - Vampire tiefling harpie thing
