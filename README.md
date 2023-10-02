@@ -8,4 +8,4 @@
 - BloodWeave and SettXayah shippers dni.
 - DM to play toys with me
 
-![image](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/6f09d8a0-9aa6-4fdc-a72b-86d571f4b154)
+![image](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/6f09d8a0-9aa6-4fdc-a72b-86d571f4b154)![image](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/cf267c10-f36c-4955-81c4-41d4ee21d755)![image](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/09a6bb80-7e65-4020-937f-d81f0294f7d8)
