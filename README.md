@@ -1,6 +1,7 @@
 **APHELIOS / CORVO / HOWL**
 
-- Whisp 2 int.
+- Whisp 2 int!
+- [Sign my guestbook!!!](https://blood-of-reptile.123guestbook.com/)
 - Vampire tiefling harpie thing
 - VAMP/He/They/She
 - Astarion and Sett's boygirlfriend
