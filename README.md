@@ -1,5 +1,5 @@
 <p align="center">
-  **APHELIOS / CORVO / HOWL / ZAGREUS / JAYCE**
+  APHELIOS / CORVO / HOWL / ZAGREUS / JAYCE
 </p>
 
 - Whisp 2 int!
