@@ -18,7 +18,9 @@
 
 >  ![tumblr_7aaa02c0fed572a282e61d60d07d9656_804d5445_75](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/3a415271-f4ee-4b5c-bd84-d4a77264207d) Awesome and cool Aphelios / Corvo Attano / Howl Jenkins/Pendragon / Zagreus / Jayce Talis splitroject sys host
 
-> ![tumblr_be528a98fbb0dc05b2675e83a7741589_9764cf48_75](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/99644b34-e398-4440-b7bf-6304a48568fb) Vampire tiefling harpie thing 
+> ![tumblr_be528a98fbb0dc05b2675e83a7741589_9764cf48_75](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/99644b34-e398-4440-b7bf-6304a48568fb) Vampire tiefling harpie thing
+
+> ![tumblr_0aac053e20878d7469cb95b86e4fdb08_68d29ee8_75](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/11940da0-2b6d-47e1-8d54-a9cab15ca87e) DM to play toys with me
 
 <p align="center">
   <img src= "https://64.media.tumblr.com/957bdf30fad17444949dd3887abebf65/0886653fbe7349c3-01/s1280x1920/742d5d09910cedff99d039f40fb2c0d8075dadf1.pnj"
