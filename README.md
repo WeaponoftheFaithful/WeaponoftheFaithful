@@ -3,5 +3,5 @@
 </p>
 
 <p align="center">
-  <img src= "![tumblr_ee95fccaa145860480d271a6fadca827_66b1231f_1280](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/a509e539-1453-4441-b5b1-7239fa9434ff)"
+  <img src= "https://64.media.tumblr.com/fecc28091a4e9db2c544fdd8513abcf1/a59bc8ddf2ecf3d4-22/s500x750/a9c46ba48c67da3a8429678185991770de054b23.gifv"
 </p>
