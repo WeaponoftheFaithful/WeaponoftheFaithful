@@ -16,6 +16,11 @@
 
 >  ![tumblr_7aaa02c0fed572a282e61d60d07d9656_804d5445_75](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/3a415271-f4ee-4b5c-bd84-d4a77264207d) Awesome and cool Aphelios / Corvo Attano / Howl Jenkins/Pendragon / Zagreus / Jayce Talis splitroject sys host
 
+> ![tumblr_be528a98fbb0dc05b2675e83a7741589_9764cf48_75](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/99644b34-e398-4440-b7bf-6304a48568fb) Vampire tiefling harpie thing 
+
+<p align="center">
+  <img src= ""
+</p>
 
 
 <p align="center">
