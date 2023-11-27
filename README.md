@@ -1,4 +1,6 @@
-**APHELIOS / CORVO / HOWL**
+<p align="center">
+  **APHELIOS / CORVO / HOWL / ZAGREUS / JAYCE**
+</p>
 
 - Whisp 2 int!
 - [Sign my guestbook!!!](https://blood-of-reptile.123guestbook.com/)
