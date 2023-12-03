@@ -4,7 +4,7 @@
 ‎ 
   
 <p align="center">
-  APHELIOS / CORVO / HOWL / ZAGREUS / JAYCE
+  APHELIOS / CORVO / HOWL / ZAGREUS / RAKAN
 </p>
 ‎ 
 
@@ -16,7 +16,7 @@
 
 > ![tumblr_17fa24b7f596eafbc41cd260075cd953_b00262de_75 (1)](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/52314762-e1e5-4859-a951-a3cdba6c57cb) VAMP / He / They / She
 
->  ![tumblr_7aaa02c0fed572a282e61d60d07d9656_804d5445_75](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/3a415271-f4ee-4b5c-bd84-d4a77264207d) Awesome and cool Aphelios / Corvo Attano / Howl Jenkins/Pendragon / Zagreus / Jayce Talis splitroject sys host
+>  ![tumblr_7aaa02c0fed572a282e61d60d07d9656_804d5445_75](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/3a415271-f4ee-4b5c-bd84-d4a77264207d) Awesome and cool Aphelios / Corvo Attano / Howl Jenkins/Pendragon / Zagreus / Rakan splitroject sys host
 
 > ![tumblr_be528a98fbb0dc05b2675e83a7741589_9764cf48_75](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/99644b34-e398-4440-b7bf-6304a48568fb) Vampire tiefling harpie thing
 
