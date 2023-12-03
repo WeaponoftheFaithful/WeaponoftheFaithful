@@ -22,6 +22,8 @@
 
 > ![tumblr_0aac053e20878d7469cb95b86e4fdb08_68d29ee8_75](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/11940da0-2b6d-47e1-8d54-a9cab15ca87e) DM to play toys with me
 
+>  ![tumblr_da259dc00b6d4e3b7666a61c6f4057b5_85931234_75](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/09f711b4-4c3d-4bf8-9010-1dfbc05fb084) Ask me about my special interests #SpreadtheMessage
+
 <p align="center">
   <img src= "https://64.media.tumblr.com/957bdf30fad17444949dd3887abebf65/0886653fbe7349c3-01/s1280x1920/742d5d09910cedff99d039f40fb2c0d8075dadf1.pnj"
 </p>
