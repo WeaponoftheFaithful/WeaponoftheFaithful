@@ -25,7 +25,7 @@
 >  ![tumblr_da259dc00b6d4e3b7666a61c6f4057b5_85931234_75](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/09f711b4-4c3d-4bf8-9010-1dfbc05fb084) Ask me about my special interests #SpreadtheMessage
 
 <p align="center">
-  <img src= "https://64.media.tumblr.com/957bdf30fad17444949dd3887abebf65/0886653fbe7349c3-01/s1280x1920/742d5d09910cedff99d039f40fb2c0d8075dadf1.pnj"
+  <img src= "https://cdn.discordapp.com/attachments/989603495629979690/1181122113524990063/Untitled_Artwork.gif?ex=657fe8b0&is=656d73b0&hm=bd10bd264448a435e04c93d4ba4a1cbff630dc428a33eb29a9b6def3ef939605&"
 </p>
 
 
