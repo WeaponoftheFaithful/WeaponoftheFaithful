@@ -16,13 +16,10 @@
 
 > ![tumblr_17fa24b7f596eafbc41cd260075cd953_b00262de_75 (1)](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/52314762-e1e5-4859-a951-a3cdba6c57cb) VAMP / He / They / She
 
->  ![tumblr_7aaa02c0fed572a282e61d60d07d9656_804d5445_75](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/3a415271-f4ee-4b5c-bd84-d4a77264207d) Awesome and cool Aphelios / Corvo Attano / Howl Jenkins/Pendragon / Zagreus / Rakan splitroject sys host
+>  ![tumblr_7aaa02c0fed572a282e61d60d07d9656_804d5445_75](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/3a415271-f4ee-4b5c-bd84-d4a77264207d) DM to play toys with me
 
-> ![tumblr_be528a98fbb0dc05b2675e83a7741589_9764cf48_75](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/99644b34-e398-4440-b7bf-6304a48568fb) Vampire tiefling harpie thing
+> ![tumblr_0aac053e20878d7469cb95b86e4fdb08_68d29ee8_75](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/11940da0-2b6d-47e1-8d54-a9cab15ca87e) Read my rentry for more info
 
-> ![tumblr_0aac053e20878d7469cb95b86e4fdb08_68d29ee8_75](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/11940da0-2b6d-47e1-8d54-a9cab15ca87e) DM to play toys with me
-
->  ![tumblr_da259dc00b6d4e3b7666a61c6f4057b5_85931234_75](https://github.com/WeaponoftheFaithful/WeaponoftheFaithful/assets/133136349/09f711b4-4c3d-4bf8-9010-1dfbc05fb084) Ask me about my special interests #SpreadtheMessage
 
 <p align="center">
   <img src= "https://cdn.discordapp.com/attachments/989603495629979690/1181122113524990063/Untitled_Artwork.gif?ex=657fe8b0&is=656d73b0&hm=bd10bd264448a435e04c93d4ba4a1cbff630dc428a33eb29a9b6def3ef939605&"
