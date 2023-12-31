@@ -22,11 +22,6 @@
 
 
 <p align="center">
-  <img src= "https://cdn.discordapp.com/attachments/989603495629979690/1181122113524990063/Untitled_Artwork.gif?ex=657fe8b0&is=656d73b0&hm=bd10bd264448a435e04c93d4ba4a1cbff630dc428a33eb29a9b6def3ef939605&"
-</p>
-
-
-<p align="center">
   my stamp / blinkie hoard :]
 </p>
 
