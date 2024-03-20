@@ -7,6 +7,9 @@
   </p>
 
 <p align="center">
+$\text{\color{red}{Aphelios \ - \ He : She \ - \ #1 STARSET fan}}$
+
+<p align="center">
 <img src="https://64.media.tumblr.com/9faa3d12a335368b85e244ba3f16ea50/12594d80fcd58fa4-6c/s1280x1920/dd7c27293471091f24b7881b3d9e51add43e8b6e.pnj"
   </p>
 
