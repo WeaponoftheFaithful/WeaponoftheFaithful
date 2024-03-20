@@ -7,7 +7,7 @@
   </p>
 
 <p align="center">
-$\text{\color{red}{Aphelios \ - \ He : She \ - \ number 1 STARSET fan}}$
+$\text{\color{red}{Aphelios \ - \ He : She \ - \ Biggest STARSET fan ever}}$
 
 </p>
 
