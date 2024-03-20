@@ -1,23 +1,4 @@
-<!-- 
 
-HUB ENTRY
-profile code
-____________
-
-RULES:
- - do not remove the credit
- - otherwise I do not care what you do
- - though it would be cool if you notified me if you used it! you don't have to but it means I get to see other people using my code and that's very nice
- 
-NOTES:
- - This code was designed for my curio characters from the Scatterstar Isles ARPG. Check it out here: https://www.deviantart.com/scatterstar-isles
- - As far as I know, this code is WYSIWYG friendly. Just be careful with the right-aligned elements, as deleting every character in them resets the formatting. This is an issue common to all instances of the pull-right span tag - I get around it by deleting all but the first character, entering the first letter of the intended entry, deleting the other first character, and proceeding as normal. Or just edit the HTML directly.
- - BORDER COLOR: #c5bf8c;
- - TEXT COLOR: #b8e76d;
-   - You can change the text color if you really want I guess, but the GIF elements will have to be manually adjusted frame-by-frame to match. So I suggest keeping the text color or removing the GIF elements.
- - When adding additional tabs or pages, make sure that only ONE tab-pane element has the 'active' class - this element will be visible by default. 
--->
- 
 <div class="container-fluid " style="height: 100%;">
     <div class="justify-content-center">
         <div class="col-md-7 card card-block" style="border: 20px ridge #c5bf8c; background-color: #0c0d0a; color: #b8e76d; font-family: monospace; background-image: url(https://i.imgur.com/8vmjLR8.gif);text-shadow: 0px 0px 2px #000; box-shadow: 0px 5px 1px 0px rgba(0,0,0,0.5);">
