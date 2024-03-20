@@ -13,6 +13,6 @@
 
 <div align="right">
 
-Credits : [I](https://www.tumblr.com/caeliangel/734008122435338240/set-of-borders-dividers-i-made-credit-me-if-you)
+$\text{\color{red}{Credits}}$ : [I](https://www.tumblr.com/caeliangel/734008122435338240/set-of-borders-dividers-i-made-credit-me-if-you)
 
 </div>
