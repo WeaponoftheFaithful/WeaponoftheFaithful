@@ -10,7 +10,7 @@ $\text{\color{#273eb0}{Aphelios \ - \ He : She \ - RU : GER : ENG}}$
 </p>
 <p align="center"> <a href="https://www.tumblr.com/thxvisionary/735588122226753536/%CB%8E%CB%8A-aphelios-the-weapon-of"><img src="https://64.media.tumblr.com/bee86dc41c7479d62510ae75344d6bef/5f261bedffa14021-54/s540x810/f040896d111290041f3f16db0e262ab2192b0a0f.gifv">
 <p align="center">
-<a href="https://www.tumblr.com/mmadeinheavenn/743329525076754432/jagged-crystalized-and-pixelated-tumblr-banner"><img src="https://cdn.discordapp.com/attachments/1218029549955059865/1220115336653963294/uh_yeah.png?ex=662038f4&is=660dc3f4&hm=a9a896db289189625ceaab5e1b0cd5a42d4b2be4eca3054c78a20caa6ed01f0b&">
+<a href="https://www.tumblr.com/mmadeinheavenn/743329525076754432/jagged-crystalized-and-pixelated-tumblr-banner"><img src="https://cdn.discordapp.com/attachments/1218029549955059865/1220115336653963294/uh_yeah.png?ex=662c1674&is=662ac4f4&hm=a5a2524b8c4a23044606bd15eefc071c966d07f1b51841c927d9d62ccbacca06&">
 </p>
 <p align="center"> <a href="https://www.tumblr.com/thxvisionary/735588122226753536/%CB%8E%CB%8A-aphelios-the-weapon-of"><img src="https://64.media.tumblr.com/bee86dc41c7479d62510ae75344d6bef/5f261bedffa14021-54/s540x810/f040896d111290041f3f16db0e262ab2192b0a0f.gifv">
 
