@@ -8,11 +8,11 @@ $\text{\color{#273eb0}{Click images for credits}}$
 <p align="center">
 $\text{\color{#273eb0}{Aphelios \ - \ He : She \ - RU : GER : ENG}}$
 </p>
-<p align="center"> <a href="https://www.tumblr.com/thxvisionary/735588122226753536/%CB%8E%CB%8A-aphelios-the-weapon-of"><img src="https://64.media.tumblr.com/bee86dc41c7479d62510ae75344d6bef/5f261bedffa14021-54/s540x810/f040896d111290041f3f16db0e262ab2192b0a0f.gifv">
+<p align="center"><img src="https://cdn.discordapp.com/attachments/1185805023536488508/1233237218836091001/16_smthing_wicked.png?ex=662c5d29&is=662b0ba9&hm=a5d145f7f93c27379a73dfa88a95844d6c244234a844252ff691873355251fb1&">
 <p align="center">
 <a href="https://www.tumblr.com/mmadeinheavenn/743329525076754432/jagged-crystalized-and-pixelated-tumblr-banner"><img src="https://cdn.discordapp.com/attachments/1218029549955059865/1220115336653963294/uh_yeah.png?ex=662c1674&is=662ac4f4&hm=a5a2524b8c4a23044606bd15eefc071c966d07f1b51841c927d9d62ccbacca06&">
 </p>
-<p align="center"> <a href="https://www.tumblr.com/thxvisionary/735588122226753536/%CB%8E%CB%8A-aphelios-the-weapon-of"><img src="https://64.media.tumblr.com/bee86dc41c7479d62510ae75344d6bef/5f261bedffa14021-54/s540x810/f040896d111290041f3f16db0e262ab2192b0a0f.gifv">
+<p align="center"><img src="https://cdn.discordapp.com/attachments/1185805023536488508/1233237149902700584/7_devolution.png?ex=662c5d18&is=662b0b98&hm=30b7ab778fa33138f7c21b10e6fa96277d9eb5e11c4b1e45d9fc6382fe479a40&">
 
   
 <p align="center">
@@ -23,7 +23,7 @@ $\text{\color{#273eb0}{Mostly @ spawn or docks, usually afk, w2i !}}$
 <a href="https://www.tumblr.com/artistrydoll/741382504893874176/cyber-rui-graphics-icons-banners"><img src="https://64.media.tumblr.com/9604a976da855bb3ced794bea3f70d92/8b2ef889f588f538-58/s2048x3072/1beae3bc637a4d258ea6008aca2a842c2bbfd162.pnj"/>
 </p>
 
-<p align="center"> <a href="https://www.tumblr.com/thxvisionary/735588122226753536/%CB%8E%CB%8A-aphelios-the-weapon-of"><img src="https://64.media.tumblr.com/bee86dc41c7479d62510ae75344d6bef/5f261bedffa14021-54/s540x810/f040896d111290041f3f16db0e262ab2192b0a0f.gifv">
+<p align="center"><img src="https://cdn.discordapp.com/attachments/1185805023536488508/1233237213995728961/12_symbiotic.png?ex=662c5d28&is=662b0ba8&hm=abef4bc73c3f213cc33c2eca76cbce61990718e35f1d7d67815cd8dad45b497f&">
   
 <p align="left">
 $\text{\color{#273eb0}{stamp / blinkie / whatever hoard}}$
