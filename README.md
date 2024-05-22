@@ -23,7 +23,7 @@ $\text{\color{#273eb0}{Mostly @ spawn or docks, usually afk, w2i !}}$
 <a href="https://www.tumblr.com/artistrydoll/741382504893874176/cyber-rui-graphics-icons-banners"><img src="https://64.media.tumblr.com/9604a976da855bb3ced794bea3f70d92/8b2ef889f588f538-58/s2048x3072/1beae3bc637a4d258ea6008aca2a842c2bbfd162.pnj"/>
 </p>
 
-<p align="center"><img src="https://cdn.discordapp.com/attachments/1185805023536488508/1233237213995728961/12_symbiotic.png?ex=662c5d28&is=662b0ba8&hm=abef4bc73c3f213cc33c2eca76cbce61990718e35f1d7d67815cd8dad45b497f&">
+<p align="center"><img src="https://cdn.discordapp.com/attachments/1233246022940098601/1240029623547596863/12_symbiotic.png?ex=664f9f14&is=664e4d94&hm=f97b22e97cc18e5e844e751e5dd5e9e5906479c537b8493133747bfc9447c98b&">
   
 <p align="left">
 $\text{\color{#273eb0}{stamp / blinkie / whatever hoard}}$
