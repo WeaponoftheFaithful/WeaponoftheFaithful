@@ -8,11 +8,11 @@ $\text{\color{#273eb0}{Click images for credits}}$
 <p align="center">
 $\text{\color{#273eb0}{Aphelios \ - \ He : She \ - RU : GER : ENG}}$
 </p>
-<p align="center"><img src="https://cdn.discordapp.com/attachments/1185805023536488508/1233237218836091001/16_smthing_wicked.png?ex=662c5d29&is=662b0ba9&hm=a5d145f7f93c27379a73dfa88a95844d6c244234a844252ff691873355251fb1&">
+<p align="center"><img src="https://cdn.discordapp.com/attachments/1233246022940098601/1240029624465883136/16_smthing_wicked.png?ex=664f9f15&is=664e4d95&hm=790cef8fa4a3c3ac48ce2fd9befebdc4fc22f02a49aa56793a6fd7d92d974999&">
 <p align="center">
-<a href="https://www.tumblr.com/mmadeinheavenn/743329525076754432/jagged-crystalized-and-pixelated-tumblr-banner"><img src="https://cdn.discordapp.com/attachments/1218029549955059865/1220115336653963294/uh_yeah.png?ex=662c1674&is=662ac4f4&hm=a5a2524b8c4a23044606bd15eefc071c966d07f1b51841c927d9d62ccbacca06&">
+<a href="https://www.tumblr.com/mmadeinheavenn/743329525076754432/jagged-crystalized-and-pixelated-tumblr-banner"><img src="https://cdn.discordapp.com/attachments/1218029549955059865/1220115336653963294/uh_yeah.png?ex=664faef4&is=664e5d74&hm=5ea6c9aeb498fd7e4f399d56890eff55f8e583d3e107d37892e861ebf4ee8060&">
 </p>
-<p align="center"><img src="https://cdn.discordapp.com/attachments/1185805023536488508/1233237149902700584/7_devolution.png?ex=662c5d18&is=662b0b98&hm=30b7ab778fa33138f7c21b10e6fa96277d9eb5e11c4b1e45d9fc6382fe479a40&">
+<p align="center"><img src="https://cdn.discordapp.com/attachments/1233246022940098601/1240029582107873350/7_devolution.png?ex=664f9f0b&is=664e4d8b&hm=44281d48f4528eb45d9dcbfaf48ba27f21df04fe54d36ddc0912127ea53e8f98&">
 
   
 <p align="center">
