@@ -1,31 +1,4 @@
-<p align="right">
-$\text{\color{#273eb0}{Click images for credits}}$
-</p>
 <p align="center">
-<a href="https://www.tumblr.com/artistrydoll/741382504893874176/cyber-rui-graphics-icons-banners"><img src="https://64.media.tumblr.com/fdb441919306be68782ea647dac77df8/8b2ef889f588f538-57/s2048x3072/e7b86ffed73694407157e51334997d34bb411d94.pnj"/>
-</p>
-
-<p align="center">
-$\text{\color{#273eb0}{Aphelios \ - \ He : She \ - RU : GER : ENG}}$
-</p>
-<p align="center"><img src="https://cdn.discordapp.com/attachments/1233246022940098601/1240029624465883136/16_smthing_wicked.png?ex=664f9f15&is=664e4d95&hm=790cef8fa4a3c3ac48ce2fd9befebdc4fc22f02a49aa56793a6fd7d92d974999&">
-<p align="center">
-<a href="https://www.tumblr.com/mmadeinheavenn/743329525076754432/jagged-crystalized-and-pixelated-tumblr-banner"><img src="https://cdn.discordapp.com/attachments/1218029549955059865/1220115336653963294/uh_yeah.png?ex=664faef4&is=664e5d74&hm=5ea6c9aeb498fd7e4f399d56890eff55f8e583d3e107d37892e861ebf4ee8060&">
-</p>
-<p align="center"><img src="https://cdn.discordapp.com/attachments/1233246022940098601/1240029582107873350/7_devolution.png?ex=664f9f0b&is=664e4d8b&hm=44281d48f4528eb45d9dcbfaf48ba27f21df04fe54d36ddc0912127ea53e8f98&">
-
-  
-<p align="center">
-$\text{\color{#273eb0}{Mostly @ spawn or docks, usually afk, w2i !}}$
-</p>
-
-<p align="center">
-<a href="https://www.tumblr.com/artistrydoll/741382504893874176/cyber-rui-graphics-icons-banners"><img src="https://64.media.tumblr.com/9604a976da855bb3ced794bea3f70d92/8b2ef889f588f538-58/s2048x3072/1beae3bc637a4d258ea6008aca2a842c2bbfd162.pnj"/>
-</p>
-
-<p align="center"><img src="https://cdn.discordapp.com/attachments/1233246022940098601/1240029623547596863/12_symbiotic.png?ex=664f9f14&is=664e4d94&hm=f97b22e97cc18e5e844e751e5dd5e9e5906479c537b8493133747bfc9447c98b&">
-  
-<p align="left">
 $\text{\color{#273eb0}{stamp / blinkie / whatever hoard}}$
 </p>
 <p align="center">
