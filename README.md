@@ -3,6 +3,9 @@
   <img src="https://i.imgur.com/dQIdSJu.png">
 </p>
 <p align="center">
+  <img src="https://i.imgur.com/jhZKsVP.png">
+</p>
+<p align="center">
 $\text{\color{#273eb0}{stamp / blinkie / whatever hoard}}$
 </p>
 <p align="center">
