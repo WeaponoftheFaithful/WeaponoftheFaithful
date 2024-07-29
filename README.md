@@ -3,10 +3,13 @@
   <img src="https://i.imgur.com/dQIdSJu.png">
 </p>
 <p align="center">
+  <a href="https://arab.org/click-to-help/palestine/"><i>Click it, its free.</i></a>
+</p>
+<p align="center">
   <img src="https://i.imgur.com/jhZKsVP.png">
 </p>
 <p align="center">
-$\text{\color{#273eb0}{stamp / blinkie / whatever hoard}}$
+<i>stamp / blinkie / whatever hoard</i>
 </p>
 <p align="center">
   <img src="https://i.imgur.com/xwMNrD9.png">
