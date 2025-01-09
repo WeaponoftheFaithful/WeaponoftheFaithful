@@ -7,7 +7,7 @@
   <img src="https://i.imgur.com/dQIdSJu.png">
   <a href="https://arab.org/click-to-help/palestine/"><i>Click it, its free.</i></a>
   <br>
-  <img src="https://i.imgur.com/jhZKsVP.png">
+  <img src="https://i.imgur.com/jhZKsVP.png" width="400" height="200">
 
 <div align="center"> 
   <img src="https://i.imgur.com/xwMNrD9.png">
