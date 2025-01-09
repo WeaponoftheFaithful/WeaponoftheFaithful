@@ -2,7 +2,8 @@
   <img src="https://graphic.neocities.org/tumblr_inline_npk1qnVozL1ry72eo_500.gif" width="500" height="58">
   
 ### <p align="center"> <i> Far from the sun , where no one knows ; </i> </p>
-  
+
+<p>
 <div>
   <img align="left" src="https://64.media.tumblr.com/a1c334c7de14b3d01de3757ff38e52ce/a2b9a9b92798b874-c9/s250x400/a0e9dcc1f1f1c095db9bebb65f87f57ef756bbaa.gifv" width="400" height="400">
   <br>
@@ -29,7 +30,7 @@
   <br>
 
   <i>[rentry](https://rentry.co/PERFECTMVCHINE)</i> 
-
+  </p>
    
 <div align="center"> 
   
