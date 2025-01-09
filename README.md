@@ -30,7 +30,8 @@
   <br>
 
   <i>[rentry](https://rentry.co/PERFECTMVCHINE)</i> 
-  </p>
+
+</p>
    
 <div align="center"> 
   
