@@ -3,7 +3,7 @@
   ![](https://komarev.com/ghpvc/?username=your-github-username&color=4B71B6&style=plastic)
   
 <div align="center"> 
-  <img src="https://graphic.neocities.org/tumblr_inline_npk1qnVozL1ry72eo_500.gif" width="500" height="58">
+  <img src="https://64.media.tumblr.com/85cb7a0b8d39111b2c3b5182dc8c7e66/2339407708ab91a0-c6/s2048x3072/044ee1f4b551424cbb3062da79163935e11c202d.pnj">
   
 ### <p align="center"> <i> Far from the sun , where no one knows ; </i> </p>
 
