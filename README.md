@@ -5,7 +5,7 @@
 <div align="center"> 
   <img src="https://64.media.tumblr.com/85cb7a0b8d39111b2c3b5182dc8c7e66/2339407708ab91a0-c6/s2048x3072/044ee1f4b551424cbb3062da79163935e11c202d.pnj">
   
-### <p align="center"> <i> Far from the sun , where no one knows ; </i> </p>
+### <p align="center"> <i> All lain aside ; </i> </p>
 
 
 <div>
@@ -39,6 +39,6 @@
    
 <div align="center"> 
   
-### <p align="center"> <i> I've watched you from my telescope . </i> </p>
+### <p align="center"> <i> It's written in our blood . </i> </p>
   
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=b62qk1bx8m7sa1fcnayilckim&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
