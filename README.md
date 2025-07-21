@@ -20,7 +20,7 @@
   <br>
   <br>
 
-  <i>[strawpage](https://perfectmvchine.straw.page/)</i>
+  <i>[strawpage](https://devil-may-cry-3.straw.page/)</i>
 
  <br>
 
