@@ -24,7 +24,7 @@
 
  <br>
 
-  <img src="https://64.media.tumblr.com/185baa39ca40efe53f25d90b769b3edf/c5e516b88dce7159-1f/s75x75_c1/950db2ae159e1582c02b821a9d0f11b15851ba40.gifv" width="15" height="15"><i>[comm. info](https://pelioscomminfo.straw.page/)</i><img src="https://64.media.tumblr.com/185baa39ca40efe53f25d90b769b3edf/c5e516b88dce7159-1f/s75x75_c1/950db2ae159e1582c02b821a9d0f11b15851ba40.gifv" width="15" height="15">
+  <img src="https://64.media.tumblr.com/185baa39ca40efe53f25d90b769b3edf/c5e516b88dce7159-1f/s75x75_c1/950db2ae159e1582c02b821a9d0f11b15851ba40.gifv" width="15" height="15"><i>[comm. info](https://gravescomminfo.straw.page/)</i><img src="https://64.media.tumblr.com/185baa39ca40efe53f25d90b769b3edf/c5e516b88dce7159-1f/s75x75_c1/950db2ae159e1582c02b821a9d0f11b15851ba40.gifv" width="15" height="15">
   
   <br>
 
