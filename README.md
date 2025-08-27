@@ -20,20 +20,20 @@
   <br>
   <br>
 
-  <i>[strawpage](https://devil-may-cry-3.straw.page/)</i>
+  <img src="https://64.media.tumblr.com/6a61e777ded58f0bcc9f863993bbe4df/db7ce6708c01e3ab-8a/s75x75_c1/5b2d1d7f7bcc713a858d8c15a115ecb8727589ab.gifv" width="15" height="15"><i>[strawpage](https://devil-may-cry-3.straw.page/)</i><img src="https://64.media.tumblr.com/6a61e777ded58f0bcc9f863993bbe4df/db7ce6708c01e3ab-8a/s75x75_c1/5b2d1d7f7bcc713a858d8c15a115ecb8727589ab.gifv" width="15" height="15">
 
  <br>
 
-  <i>[comm. info](https://pelioscomminfo.straw.page/)</i>
+  <img src="https://64.media.tumblr.com/185baa39ca40efe53f25d90b769b3edf/c5e516b88dce7159-1f/s75x75_c1/950db2ae159e1582c02b821a9d0f11b15851ba40.gifv" width="15" height="15"><i>[comm. info](https://pelioscomminfo.straw.page/)</i><img src="https://64.media.tumblr.com/185baa39ca40efe53f25d90b769b3edf/c5e516b88dce7159-1f/s75x75_c1/950db2ae159e1582c02b821a9d0f11b15851ba40.gifv" width="15" height="15">
   
   <br>
 
   
-  <i>[atabook](https://perfectmvchine.atabook.org/)</i>
+  <img src="https://64.media.tumblr.com/7209af3408526716f17e48fdcfd5cf84/e0b92b6160ec4cbf-d0/s75x75_c1/c5bc47a8900907797a972cd5ceae3b74820729cf.gifv" width="15" height="15"><i>[atabook](https://perfectmvchine.atabook.org/)</i><img src="https://64.media.tumblr.com/7209af3408526716f17e48fdcfd5cf84/e0b92b6160ec4cbf-d0/s75x75_c1/c5bc47a8900907797a972cd5ceae3b74820729cf.gifv" width="15" height="15">
 
   <br>
 
-  <i>[rentry](https://rentry.co/PERFECTMVCHINE)</i> 
+  <img src="https://64.media.tumblr.com/3ee12821a87899c8fb333ffb1d65c02f/e0b92b6160ec4cbf-19/s75x75_c1/9272cb2b2a0cb27a279697d5b7e8217fcee6478d.gifv" width="15" height="15"><i>[rentry](https://rentry.co/PERFECTMVCHINE)</i><img src="https://64.media.tumblr.com/3ee12821a87899c8fb333ffb1d65c02f/e0b92b6160ec4cbf-19/s75x75_c1/9272cb2b2a0cb27a279697d5b7e8217fcee6478d.gifv" width="15" height="15">
 </p>
 
    
