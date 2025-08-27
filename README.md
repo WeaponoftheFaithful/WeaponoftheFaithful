@@ -8,8 +8,6 @@
 ### <p align="center"> <i> Dark minds embrace crimson joy ; </i> </p>
 <img align="center" src="https://64.media.tumblr.com/d67bbd34671e58babef4d81b2aaf1bdf/d380fff22bb5d32d-53/s2048x3072/269e914b9200539f569e077e48f481ab11b90898.pnj" width="500" height="50">
 
-<br>
-
 <div>
   <img align="left" src="https://64.media.tumblr.com/ac4c406d8cd9cefc180fb05fc81d26b1/tumblr_prpctzkzvF1rcpq6ao1_400.gifv" width="400" height="400">
   <br>
