@@ -6,8 +6,10 @@
   <img src="https://64.media.tumblr.com/7414c6ef681cab0fd2a1927f3282bd62/18f8f3d97b907766-f8/s2048x3072/7111f35ac0e69950f3cede6f67c2e8805848b857.pnj">
   
 ### <p align="center"> <i> Dark minds embrace crimson joy ; </i> </p>
+<img align="center" src="https://64.media.tumblr.com/d67bbd34671e58babef4d81b2aaf1bdf/d380fff22bb5d32d-53/s2048x3072/269e914b9200539f569e077e48f481ab11b90898.pnj" width="500" height="50">
 
-
+<div>
+~
 <div>
   <img align="left" src="https://64.media.tumblr.com/ac4c406d8cd9cefc180fb05fc81d26b1/tumblr_prpctzkzvF1rcpq6ao1_400.gifv" width="400" height="400">
   <br>
@@ -36,10 +38,13 @@
   <img src="https://64.media.tumblr.com/3ee12821a87899c8fb333ffb1d65c02f/e0b92b6160ec4cbf-19/s75x75_c1/9272cb2b2a0cb27a279697d5b7e8217fcee6478d.gifv" width="15" height="15"><i>[rentry](https://rentry.co/PERFECTMVCHINE)</i><img src="https://64.media.tumblr.com/3ee12821a87899c8fb333ffb1d65c02f/e0b92b6160ec4cbf-19/s75x75_c1/9272cb2b2a0cb27a279697d5b7e8217fcee6478d.gifv" width="15" height="15">
 </p>
 
+  <br>
    
 <div align="center"> 
   
-### <p align="center"> <i> Does your dim heart heal or destroy . . ? </i> </p>
+  <img align="center" src="https://64.media.tumblr.com/d67bbd34671e58babef4d81b2aaf1bdf/d380fff22bb5d32d-53/s2048x3072/269e914b9200539f569e077e48f481ab11b90898.pnj" width="500" height="50">
+  
+  ### <p align="center"> <i> Does your dim heart heal or destroy . . ? </i> </p>
 
 <div align="center"> 
   <img src="https://64.media.tumblr.com/7414c6ef681cab0fd2a1927f3282bd62/18f8f3d97b907766-f8/s2048x3072/7111f35ac0e69950f3cede6f67c2e8805848b857.pnj">
