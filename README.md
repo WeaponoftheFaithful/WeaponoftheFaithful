@@ -16,7 +16,7 @@
   <img align="center" src="https://64.media.tumblr.com/85129797db53bb94ef7fe6f061c07c6d/7fd8de99c27e763a-c8/s250x400/8ba53e60b9deb61159c7a00d174faaf0f39c5668.gifv">
 <p>
   <div align="center">
-  <strong>read / draw on my strawpage + sign my ata + read my rentry ! !</strong>
+  <strong>read / draw on my strawpage + sign my ata ! !</strong>
   <br>
   <br>
 
@@ -33,7 +33,7 @@
 
   <br>
 
-  <img src="https://64.media.tumblr.com/3ee12821a87899c8fb333ffb1d65c02f/e0b92b6160ec4cbf-19/s75x75_c1/9272cb2b2a0cb27a279697d5b7e8217fcee6478d.gifv" width="15" height="15"><i>[rentry](https://rentry.co/PERFECTMVCHINE)</i><img src="https://64.media.tumblr.com/3ee12821a87899c8fb333ffb1d65c02f/e0b92b6160ec4cbf-19/s75x75_c1/9272cb2b2a0cb27a279697d5b7e8217fcee6478d.gifv" width="15" height="15">
+  <img src="https://64.media.tumblr.com/3ee12821a87899c8fb333ffb1d65c02f/e0b92b6160ec4cbf-19/s75x75_c1/9272cb2b2a0cb27a279697d5b7e8217fcee6478d.gifv" width="15" height="15"><i>[last.fm](https://www.last.fm/user/absentsia)</i><img src="https://64.media.tumblr.com/3ee12821a87899c8fb333ffb1d65c02f/e0b92b6160ec4cbf-19/s75x75_c1/9272cb2b2a0cb27a279697d5b7e8217fcee6478d.gifv" width="15" height="15">
 </p>
 
   <br>
